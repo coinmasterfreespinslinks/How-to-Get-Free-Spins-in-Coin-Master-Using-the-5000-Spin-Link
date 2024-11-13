@@ -4,6 +4,8 @@ If you're a fan of **Coin Master**, you know how essential spins are for progres
 
 In this article, we will guide you step-by-step on how to access the **5000 free spins link** and claim your rewards. Whether you're a seasoned player or a new adventurer in the world of Coin Master, this method will help you accelerate your progress without spending real money. So, let's dive into the exciting world of Coin Master and unlock the secrets of the 5000 spin link.
 
+### [✅CLICK HERE TO GET NOW FREE!](https://edris2025.github.io/spins/)
+
 ---
 
 ### What is Coin Master?
